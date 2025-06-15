@@ -1,23 +1,25 @@
 # Kevin Thomas Fernandez
 
-**Graduate, Virginia Tech**  
-_M.S. in Aerospace Engineering_
+**M.S. Aerospace Engineering — Virginia Tech**  
+Focused on pushing boundaries in both research and sound.
 
 ---
 
-### Music Produced 
-[No Boundaries - by MANGA](https://open.spotify.com/track/1YTtykT5GkZiFMKFKQkWXM?si=10b588e0d1b14c58)
-[War Ground - by MANGA](https://open.spotify.com/track/2nOXG4dJFw2a5xOWdtfhJI?si=00f985b599f34d74)
+### Music Production  
+Original works under the artist name **MANGA**:  
+• [No Boundaries](https://open.spotify.com/track/1YTtykT5GkZiFMKFKQkWXM?si=10b588e0d1b14c58)  
+• [War Ground](https://open.spotify.com/track/2nOXG4dJFw2a5xOWdtfhJI?si=00f985b599f34d74)
 
 ---
 
-### Academic Work  
+### Research & Academic Work  
+Explore my published work:  
 [Google Scholar Profile](https://scholar.google.com/citations?hl=en&view_op=list_works&gmla=AH8HC4yFQB1XF2yknzpGti_NNXgRxT-PG4Qe1nkeEzSp2oHO8NI0M4cIzTI8Ek8U5rcIgAJIojDHEadp-sIsjA&user=H_eG3ZAAAAAJ)
 
 ---
 
-### Highlights  
-[Virginia Tech Feature](https://www.facebook.com/virginiatechaoe/photos/congrats-to-kevin-thomas-fernandez-who-completed-his-masters-degree-this-spring-/714215007801559/?_rdr)
+### Recognition  
+[Virginia Tech Spotlight](https://www.facebook.com/virginiatechaoe/photos/congrats-to-kevin-thomas-fernandez-who-completed-his-masters-degree-this-spring-/714215007801559/?_rdr)
 
 ---
 
