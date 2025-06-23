@@ -14,7 +14,7 @@ Original works under the artist name **MANGA**:
 
 ### Research & Academic Work  
 Explore my published work:  
-• [Google Scholar Profile](https://scholar.google.com/citations?hl=en&view_op=list_works&gmla=AH8HC4yFQB1XF2yknzpGti_NNXgRxT-PG4Qe1nkeEzSp2oHO8NI0M4cIzTI8Ek8U5rcIgAJIojDHEadp-sIsjA&user=H_eG3ZAAAAAJ)
+• [Google Scholar Profile](https://scholar.google.com/citations?hl=en&view_op=list_works&gmla=AH8HC4yFQB1XF2yknzpGti_NNXgRxT-PG4Qe1nkeEzSp2oHO8NI0M4cIzTI8Ek8U5rcIgAJIojDHEadp-sIsjA&user=H_eG3ZAAAAAJ)  
 • [Thesis](https://virginiatech.primo.exlibrisgroup.com/discovery/fulldisplay?context=L&vid=01VT_INST:01VT_INST&search_scope=MyInst_and_CI&tab=Everything&docid=alma991013646721608646)
 
 ---
