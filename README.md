@@ -30,4 +30,4 @@ Explore my published work:
 ---
 
 ### Discord
-• [Join my channel](https://discord.gg/8zzpy3qe)
+• [NimAjji's Server](https://discord.gg/8zzpy3qe)
