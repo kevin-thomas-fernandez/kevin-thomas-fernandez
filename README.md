@@ -1,7 +1,7 @@
 # Kevin Thomas Fernandez
 
 **M.S. Aerospace Engineering — Virginia Tech**  
-Focused on pushing boundaries in both research and art.
+Focused on pushing boundaries in both technology and art.
 
 ---
 
