@@ -26,3 +26,8 @@ Explore my published work:
 
 ### Connect  
 • [LinkedIn](https://www.linkedin.com/in/ktf08/)
+
+---
+
+### Discord
+• [Join my channel](https://discord.gg/8zzpy3qe)
