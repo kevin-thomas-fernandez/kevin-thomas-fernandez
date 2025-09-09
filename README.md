@@ -5,13 +5,6 @@ Focused on pushing boundaries in both technology and art.
 
 ---
 
-### Music Production  
-Original works under the artist name **MANGA**:  
-• [No Boundaries](https://open.spotify.com/track/1YTtykT5GkZiFMKFKQkWXM?si=10b588e0d1b14c58)  
-• [War Ground](https://open.spotify.com/track/2nOXG4dJFw2a5xOWdtfhJI?si=00f985b599f34d74)
-
----
-
 ### Research & Academic Work  
 Explore my published work:  
 • [Google Scholar Profile](https://scholar.google.com/citations?hl=en&view_op=list_works&gmla=AH8HC4yFQB1XF2yknzpGti_NNXgRxT-PG4Qe1nkeEzSp2oHO8NI0M4cIzTI8Ek8U5rcIgAJIojDHEadp-sIsjA&user=H_eG3ZAAAAAJ)  
@@ -31,3 +24,10 @@ Explore my published work:
 
 ### Discord
 • [NimAjji's Server](https://discord.gg/8zzpy3qe)
+
+---
+
+### Music Production  
+Original works under the artist name **MANGA**:  
+• [No Boundaries](https://open.spotify.com/track/1YTtykT5GkZiFMKFKQkWXM?si=10b588e0d1b14c58)  
+• [War Ground](https://open.spotify.com/track/2nOXG4dJFw2a5xOWdtfhJI?si=00f985b599f34d74)
